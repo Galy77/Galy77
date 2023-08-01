@@ -60,6 +60,6 @@ A lo largo de mi carrera, he trabajado en diversos proyectos que me han permitid
 ## Contacto
 
 - Email: diegogaleano980@gmail.com
-- LinkedIn: [Diego Galeano](www.linkedin.com/in/diego-galeano-b67548281)
+- LinkedIn: [Diego Galeano](https://www.linkedin.com/in/diego-galeano-b67548281/)
 
 ¡Gracias por visitar mi perfil! Siéntete libre de explorar mis proyectos y no dudes en contactarme para cualquier consulta o colaboración. ¡Espero tener la oportunidad de trabajar juntos en el futuro! 😄
